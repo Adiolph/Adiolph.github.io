@@ -1,5 +1,5 @@
-# Welcome to Hu Fan's homepage in GitHub
+# Welcome to Fan's Arcane Tome
 
-I build this homepage in July 2019 when exploring GitHub.
+## How to use overwhelmingly high energy particles to defeat a demon.
 
-This is just a test. Maybe I will update it later.
+The rest of this page has been dilacerated.
