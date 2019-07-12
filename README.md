@@ -1,5 +1,5 @@
 # Welcome to Fan's Arcane Tome
 
-## How to use overwhelmingly high energy particles to defeat a demon.
+All pages are blank.
 
-The rest of this page has been dilacerated.
+Maybe, you need some magic powder to show the words up.
